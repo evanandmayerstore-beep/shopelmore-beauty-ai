@@ -1,0 +1,1 @@
+# shopelmore-beauty-ai
